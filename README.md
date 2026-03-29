@@ -17,6 +17,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">watch eve's MVs for how to eat life!</div>
+<div align="center">tw for suicide in insomnia and sayonara end roll</div>
 <p align="center">
  <a href= "https://www.youtube.com/watch?v=U7L-3VXAkSA"> how to eat life</a>ㅤㅤㅤ<a href= "https://www.youtube.com/watch?v=2eOg5DoYuwU">fight song</a>ㅤㅤㅤ<a href= "https://www.youtube.com/watch?v=35nV_M3asRs">insomnia</a>ㅤㅤㅤ<a href= "https://www.youtube.com/watch?v=VOChndxKi6U">sayonara end roll</a>ㅤㅤㅤ<a href= "https://www.youtube.com/watch?v=PysVvOp0jiU">ghost avenue</a> 
 </p>
