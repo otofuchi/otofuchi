@@ -3,7 +3,7 @@
 ㅤ
 <div align="center">'` 君だけが対等に話してくれる ㅤ 心の在り処はここだけ `'</div>
 
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/otofuchismall.png" width="670" height="670" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/fuchibg.png" width="670" height="670" /></div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <div align="center">please read my <a href= "https://rentry.co/sanguinare/">dni</a> before you interact</div>
