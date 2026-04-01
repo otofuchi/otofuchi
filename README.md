@@ -12,7 +12,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
- <a href= "https://uta.atabook.org/"> ata</a>ㅤㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
+ <a href= "https://set.atabook.org/"> ata</a>ㅤㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤㅤ<a href= "https://rentry.co/filmred/">rentry</a> 
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
