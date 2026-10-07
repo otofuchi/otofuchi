@@ -5,11 +5,7 @@
 
 <div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/fuchibg.png" /></div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<div align="center">i dont think tobi and fuchi have a ship name? so i designate otofuchi</div>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+ㅤ
 <p align="center">
  <a href= "https://set.atabook.org/"> ata</a>ㅤㅤㅤ<a href= "https://pronouns.cc/@ahri/">prns.cc</a>ㅤㅤㅤ<a href= "https://rentry.co/cmeo">rentry</a> 
 </p>
