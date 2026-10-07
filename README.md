@@ -3,7 +3,7 @@
 ㅤ
 <div align="center">'` 君だけが対等に話してくれる ㅤ 心の在り処はここだけ `'</div>
 
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/fuchibg.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-10-06_223326529.png" /></div>
 
 ㅤ
 <p align="center">
